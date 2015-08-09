@@ -1,2 +1,3 @@
-# life
-As she is played. 
+# Writing
+
+Version control everything.
