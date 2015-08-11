@@ -1,7 +1,7 @@
 On the day we won  
 I whooped in the cafe, thrust  
 both my fists into the air  
-Smiled at my twitter feed  
+Smiled at my rainbow twitter feed  
 and accidentally called my sister  
 a bigot.  
   
@@ -16,7 +16,7 @@ On the day we won
 I had a deadline, drove  
 into downtown DC anyway  
 I wanted to see the Jefferson Memorial  
-where talks about a nation  
+where there's a quote about a nation  
 outgrowing itself.  
   
 On the day we won  
