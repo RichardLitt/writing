@@ -1,6 +1,6 @@
 ## Louis and the Ziggurat
 
-His was an all consuming fury, relentless in it’s strength, thicker than the humidity of the Arlington morning. It was terrifying not so much for it’s raw eviscerating power, but for the facade of glee which covered it; he smiled and grinned as he went, his eyes forming sunk into little pockets of folded fat and skin on his face, his stupidity dripping from his mouth like saliva. Yes, the expression said, yes; I will come and I will destroy you. I will tear down your high places, and I will desecrate your low ones. Wherever I can crawl, lego nations die. 
+His was an all consuming fury, relentless in its strength, thicker than the humidity of the Arlington morning. It was terrifying not so much for its raw eviscerating power, but for the facade of glee which covered it; he smiled and grinned as he went, his eyes forming sunk into little pockets of folded fat and skin on his face, his stupidity dripping from his mouth like saliva. Yes, the expression said, yes; I will come and I will destroy you. I will tear down your high places, and I will desecrate your low ones. Wherever I can crawl, lego nations die. 
 
 “How’s it going in there?” My sister calls from the kitchen, where I hear a the clatter of pots being put on the stove, cabinet doors opening and closing. 
 
