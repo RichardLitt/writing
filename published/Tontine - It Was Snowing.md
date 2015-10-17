@@ -1,0 +1,3 @@
+## It Was Snowing
+
+It was snowing, and snow was falling. The snow was falling on the banks and the braes On the heather, on every last sentinel of Scots pine. The snow was falling, quietly, and in silence.  It was snowing, and the act was transient Snow had fallen, and the snow was falling. At every moment, the snow was about to fall. Here a flake, and here a mountain of snow.  It was snowing, and I, in my ignorance, Or in my wisdom, in my thoughts and language, Posited that it itself was snowing, In each drift, it was was apparent, and it snowed.  It was snowing, and every moment froze. Here a silence to match my slowness. Here a movement to awaken my desire. And here, an end. passive, or perfectly imperfect.
