@@ -7,6 +7,7 @@ These are some of my published creative works.
 * _import_soul.py_. In Code Poems. http://www.code-poems.com
 * _America_. Tontine Literary Section, Edinburgh University Student Newspaper, 2008 week 6.
 * _It Was Snowing_. Tontine Literary Section, Edinburgh University Student Newspaper, 2008 week 6.
+* _The Gingko_. In The Avocet #240. http://www.avocetreview.com/
 
 ### Vignettes
 
